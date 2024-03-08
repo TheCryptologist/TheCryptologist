@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TheCryptologist
 - 👀 I’m interested in many things in project management, blockchain, web3, music, traveling, and much more
-- 🌱 I’m currently learning certain projet management skills to diversify in my current styles, plus learning more about new trends in blockchain
+- 🌱 I’m currently learning certain project management skills to diversify in my current styles, plus learning more about new trends in blockchain
 - 💞️ I’m looking to collaborate on my personal projects with other likeminded individuals
 - 📫 You can reach me at my email @ cryptologist.eth@gmail.com
 - 😄 Pronouns: What?
